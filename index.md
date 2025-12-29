@@ -7,7 +7,7 @@ title: Yawar Hussain
 
 **MBBS Student | Government Medical College, Jammu**
 
-I am a first-year MBBS student interested in medicine, research, and interdisciplinary applications of science and technology in healthcare.
+I am a second-year MBBS student interested in medicine, research, and interdisciplinary applications of science and technology in healthcare.
 
 ## Education
 - MBBS – Government Medical College, Jammu
