@@ -1,2 +1,2 @@
 # Yawarhusayn.github.io
-Personal academic website of yawar hussain
+Personal website of yawar hussain
